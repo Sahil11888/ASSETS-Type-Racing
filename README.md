@@ -1,1 +1,1 @@
-https://play.typeracer.com?rt=121l9gdi7k
+https://play.typeracer.com?rt=1qp8mxb6g9
